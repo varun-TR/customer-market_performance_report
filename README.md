@@ -8,5 +8,6 @@ market performance report
 
 Business model:
 
-![WhatsApp Image 2024-07-16 at 12 29 34 PM](https://github.com/user-attachments/assets/5c77159c-1fdf-4256-abb6-d0c54c612db3)
+![WhatsApp Image 2024-07-16 at 12 36 09 PM](https://github.com/user-attachments/assets/fd35a0e5-650b-47c0-bfbc-31a1fb54c120)
+
 
